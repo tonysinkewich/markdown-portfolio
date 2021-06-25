@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Washington D.C.
+2. Coffee Enthusiast 
+3. Scottish Terrier Dad
