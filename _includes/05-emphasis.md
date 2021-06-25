@@ -1,0 +1,3 @@
+*R-Studio*
+*PowerBi*
+*SQL*
